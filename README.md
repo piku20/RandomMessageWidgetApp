@@ -1,1 +1,1 @@
-https://github.com/piku20/RandomMessageWidgetApp/assets/51356394/7b9dcf0b-ac7c-43ab-9de7-ce061d0d407f
+https://github.com/piku20/RandomMessageWidgetApp/assets/51356394/b8bca229-c55f-4941-990f-50ad3220929d
